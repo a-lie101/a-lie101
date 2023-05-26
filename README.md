@@ -1,4 +1,4 @@
-### Hi there 👋
+### hey, this is ali 👋
 
 ![](https://komarev.com/ghpvc/?username=a-lie101)
 
